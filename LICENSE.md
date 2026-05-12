@@ -1,4 +1,4 @@
-# 
+# Get the ultimate blur sniper bot with blur sniper bot instant Bot - NFT-sniping and arbitrage-opportunities. Featuring NFT-sniping and arbitrage-opportunities, it's the best
 
 
 
